@@ -1,1 +1,1 @@
-This is just vape but i will kinda edit it in future or rn
+Aristois Client V1.1 Public Script
